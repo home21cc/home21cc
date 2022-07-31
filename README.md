@@ -1,4 +1,4 @@
-👋 Hi, I’m @home21cc
+👋 Hi, I’m DoMyoung Park.
   - CEO at Factory Research Center
   - Director of Smart Logistics Research Center at Dong-A University
   - Director of University Research Park at Dong-A University
